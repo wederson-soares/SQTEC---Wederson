@@ -1,1 +1,0 @@
-# SQTEC---Wederson
